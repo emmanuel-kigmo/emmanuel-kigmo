@@ -16,7 +16,7 @@
   - Automated threat detection and mitigation using AI/ML.
 
 ## 📫 How to Reach Me
-- **Email:** emmanuel.kigmo@example.com  
+- **Email:** ekigmo20@gmail.com
 - **LinkedIn:** [Emmanuel Kigmo](https://www.linkedin.com/in/emmanuel-kigmo/)  
 
 ## 😄 Pronouns
