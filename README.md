@@ -17,7 +17,7 @@
 
 ## 📫 How to Reach Me
 - **Email:** ekigmo20@gmail.com
-- **LinkedIn:** [Emmanuel Kigmo](https://www.linkedin.com/in/emmanuel-kigmo/)  
+- **LinkedIn:** [Emmanuel Kigmo](https://www.linkedin.com/in/emmanuel-kigmo-yonga/)  
 
 ## 😄 Pronouns
 - He/Him  
